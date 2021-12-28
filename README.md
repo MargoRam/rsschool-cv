@@ -1,1 +1,1 @@
-# rsschool-cv
+https://MargoRam.github.io/rsschool-cv/cv
