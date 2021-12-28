@@ -22,10 +22,10 @@ Management
     + 2008 - 2014
 Minsk, Belarus
 
-=======================================================================================
+========================================================================================
 
 * ## English
     + Intermediate level
-    + Couple of years I live in English environment.
+    + Since 2019 I live in English environment.
 
 **********************************
